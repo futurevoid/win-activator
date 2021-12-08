@@ -2,5 +2,6 @@
 win 10/11 activator using kms 
 
 REQS
-none
+Win 10/11 LOL
+
  
